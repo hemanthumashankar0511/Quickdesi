@@ -11,7 +11,9 @@ Easy-to-Follow Instructions: Each recipe includes clear, step-by-step instructio
 Culinary Inspiration: Whether you're looking for a quick weeknight meal, planning a special dinner, or just seeking new ideas, QuickDesi has you covered.
 
 Our Commitment
+
 At QuickDesi, we are committed to promoting cultural appreciation, culinary exploration, and healthy eating habits. We strive to celebrate the richness of Indian culinary heritage while encouraging creativity in the kitchen.
 
 Get Started
+
 Join us on a flavorful journey through Indian cuisine! Explore our recipes, get inspired, and bring the essence of India into your kitchen.
